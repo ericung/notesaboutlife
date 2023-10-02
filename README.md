@@ -1,4 +1,4 @@
-Animals of the Chinese Zodiac
+# Animals of the Chinese Zodiac
 
 Rat - These overpopulate the planet too much\
 	Pup (Can be trained if they study hard) => Street Rats  => Rat King\
@@ -14,9 +14,9 @@ Rooster - Domesticated - These are cocky\
 Dog - Domesticated - These are loyal but have sex with everything\
 Pig - Domesticated - These eat a lot\
 
-===========================================================
+-----
 
-Animals in the United States
+# Animals in the United States
 
 These are all wild
 
@@ -39,10 +39,9 @@ What happens when we spoil a bird? Are they birds of paradise or birds of prey?\
 {Birds of Paradise} - Lives life luxuriously\
 {Birds of Prey} - Hunts and keeps the environment in check\
 
-===============================================================
+-----
 
-
-Food Wars
+# Food Wars
 
 Muffins as light as air and sweet\
 Chicken Noodle Soup are for the sick\
@@ -52,9 +51,9 @@ Beer are usually brown, stays at home, and used for fun\
 
 Sometimes food needs to be produced in a factory but it’s artificial and has too many preservatives but if they are produced with time, skills, and love at home they have soul.
 
-===============================================================
+-----
 
-Indian Caste ~ Social Class in the UK
+# Indian Caste ~ Social Class in the UK
 
 These models doesn’t allow much room for social mobility
 
@@ -66,20 +65,22 @@ Peasant kings like Ghandi rise out of this
 
 King Arthur and the knights of the round table searching for the fountain of youth but life is too short
 
-===============================================================
+-----
 
-The Old Treatment
+# The Old Treatment
 
 Fool => Wise Man => Are Mad King and Wise King the same?
 
-Three Natural Medicines
+Three Natural Medicines\
 Laughing is the best medicine\
 Time heals all wounds\
-Sleeping
+Sleeping more than usual\
 
-===============================================================
+Sorry it took so long to come back home babe
 
-All about women
+-----
+
+# All about women
 
 1. Girls take after their dads
 
@@ -98,16 +99,16 @@ Your brothers and sisters will always be at home with mom
 
 Decline of marriage and increase of divorces comes from not understanding the first law
 
-===============================================================
+-----
 
-Making money if you don't want to be a porn star
+# Making money if you don't want to be a porn star
 
 Body - Presence is the bare minimum otherwise you're just cannon fodder
 Skills - Develop basic skills that isn't that fun
 Skills with Passions - Develop desired skills with passion
 Ideas - Figure out how to learn how to make new ideas 
 
-===============================================================
+-----
 
 Poetry © 2023 by Eric Ung is licensed under Attribution-NonCommercial 4.0 International. To view a copy of this license, visit http://creativecommons.org/licenses/by-nc/4.0/
 
