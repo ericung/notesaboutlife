@@ -44,11 +44,11 @@ What happens when we spoil a bird? Are they birds of paradise or birds of prey?\
 
 Food Wars
 
-Muffins - Light as air and sweet\
-Chicken Noodle Soup - For the sick\
-Potatoes - Healthy and hearty\
-Dasani - Essential but need to cleanse and purify it otherwise you’ll get salmonella\
-Beer - It’s usually brown, stays at home, and used for fun\
+Muffins as light as air and sweet\
+Chicken Noodle Soup are for the sick\
+Potatoes are healthy and hearty\
+Dasani are essential but need to cleanse and purify it otherwise you’ll get salmonella\
+Beer are usually brown, stays at home, and used for fun\
 
 Sometimes food needs to be produced in a factory but it’s artificial and has too many preservatives but if they are produced with time, skills, and love at home they have soul.
 
@@ -68,10 +68,14 @@ King Arthur and the knights of the round table searching for the fountain of you
 
 ===============================================================
 
+The Old Treatment
+
 Fool => Wise Man => Are Mad King and Wise King the same?
 
+Three Natural Medicines
 Laughing is the best medicine\
-Sleeping heals wounds
+Time heals all wounds\
+Sleeping
 
 ===============================================================
 
@@ -96,12 +100,12 @@ Decline of marriage and increase of divorces comes from not understanding the fi
 
 ===============================================================
 
-Making money
+Making money if you don't want to be a porn star
 
-Body - Presence is the bare minimum
-Skills - Develop basic skills
+Body - Presence is the bare minimum otherwise you're just cannon fodder
+Skills - Develop basic skills that isn't that fun
 Skills with Passions - Develop desired skills with passion
-Ideas - Learn how to make new ideas and build off of other ideas
+Ideas - Figure out how to learn how to make new ideas 
 
 ===============================================================
 
