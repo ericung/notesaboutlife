@@ -96,5 +96,5 @@ Decline of marriage and increase of divorces comes from not understanding the fi
 
 ===============================================================
 
-[Poetry ](https://github.com/ericung/notesaboutlife)© 2023 by [Eric Ung ](https://github.com/ericung)is licensed under [CC BY-NC 4.0 ![](https://chooser-beta.creativecommons.org/img/cc-logo.f0ab4ebe.svg)![](https://chooser-beta.creativecommons.org/img/cc-by.21b728bb.svg)](http://creativecommons.org/licenses/by-nc/4.0/?ref=chooser-v1)
+Poetry © 2023 by Eric Ung is licensed under Attribution-NonCommercial 4.0 International. To view a copy of this license, visit http://creativecommons.org/licenses/by-nc/4.0/
 
