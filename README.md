@@ -77,7 +77,7 @@ Sleeping heals wounds
 
 All about women
 
-Girls take after their dads
+1. Girls take after their dads
 
 Some guys trash girls, some make them more beautiful, others in between
 
@@ -93,6 +93,15 @@ Kings in a chess board don’t move much and so the princess is protected in the
 Your brothers and sisters will always be at home with mom
 
 Decline of marriage and increase of divorces comes from not understanding the first law
+
+===============================================================
+
+Making money
+
+Body - Presence is the bare minimum
+Skills - Develop basic skills
+Skills with Passions - Develop desired skills with passion
+Ideas - Learn how to make new ideas and build off of other ideas
 
 ===============================================================
 
