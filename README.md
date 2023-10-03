@@ -12,7 +12,7 @@ Goat - Domesticated - These tackle everything head on\
 Monkey - Wild - These experiment a lot in more ways than one\
 Rooster - Domesticated - These are cocky\
 Dog - Domesticated - These are loyal but have sex with everything\
-Pig - Domesticated - These eat a lot\
+Pig - Domesticated - These eat a lot
 
 -----
 
@@ -33,11 +33,11 @@ Squirrels\
 Hares\
 Woodpecker\
 Owl\
-Fox\
+Fox
 
 What happens when we spoil a bird? Are they birds of paradise or birds of prey?\
 {Birds of Paradise} - Lives life luxuriously\
-{Birds of Prey} - Hunts and keeps the environment in check\
+{Birds of Prey} - Hunts and keeps the environment in check
 
 -----
 
@@ -47,7 +47,7 @@ Muffins as light as air and sweet\
 Chicken Noodle Soup are for the sick\
 Potatoes are healthy and hearty\
 Dasani are essential but need to cleanse and purify it otherwise you’ll get salmonella\
-Beer are usually brown, stays at home, and used for fun\
+Beer are usually brown, stays at home, and used for fun
 
 Sometimes food needs to be produced in a factory but it’s artificial and has too many preservatives but if they are produced with time, skills, and love at home they have soul.
 
@@ -76,7 +76,7 @@ Fool => Wise Man => Are Mad King and Wise King the same?
 Three Natural Medicines\
 Laughing is the best medicine\
 Time heals all wounds\
-Sleeping more than usual\
+Sleeping more than usual
 
 Sorry it took so long to come back home babe
 
@@ -93,7 +93,7 @@ Some guys need girls the same age, others don’t
 Guys embody three things {Body, Mind, Spirit} and the girls follow that unless the roles are reversed\
 Body => Beauty\
 Mind => Brains\
-Spirit => Personality\
+Spirit => Personality
 
 Kings in a chess board don’t move much and so the princess is protected in the castle
 
