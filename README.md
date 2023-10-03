@@ -105,7 +105,7 @@ Decline of marriage and increase of divorces comes from not understanding the fi
 
 # Making money if you don't want to be a porn star
 
-Body - Presence is the bare minimum otherwise you're just cannon fodder
+Body - Presence is the bare minimum otherwise you're just cannon fodder. Just for looks
 Skills - Develop basic skills that isn't that fun
 Skills with Passions - Develop desired skills with passion
 Ideas - Figure out how to learn how to make new ideas 
