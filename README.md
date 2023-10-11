@@ -122,7 +122,7 @@ Don't want to look like a gay fag practicing with another dude?\
 Footwork for salsa and swing <=> Footwork for taekwondo and boxing\
 Smooth talking your way as a cashier at the local grocery store\
 Buying roses to knockout the feminazis\
-Get Emma Watson'ed you dirty communists, you're in the wrong country
+Get Emma Watson'ed you thirty communists, you're in the wrong country
 
 -----
 Poetry © 2023 by Eric Ung is licensed under Attribution-NonCommercial 4.0 International. To view a copy of this license, visit http://creativecommons.org/licenses/by-nc/4.0/
