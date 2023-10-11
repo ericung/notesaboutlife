@@ -80,6 +80,10 @@ Sleeping more than usual
 
 Sorry it took so long to come back home babe
 
+What happens if you make a fool out of a king?
+
+:thumbsdown:
+
 -----
 
 # All about women
@@ -105,12 +109,21 @@ Decline of marriage and increase of divorces comes from not understanding the fi
 
 # Making money if you don't want to be a porn star
 
-Body - Presence is the bare minimum otherwise you're just cannon fodder. Just for looks
-Skills - Develop basic skills that isn't that fun
-Skills with Passions - Develop desired skills with passion
+Body - Presence is the bare minimum otherwise you're just cannon fodder. Just for looks\
+Skills - Develop basic skills that isn't that fun\
+Skills with Passions - Develop desired skills with passion\
 Ideas - Figure out how to learn how to make new ideas, if you didn't develop skills that you were passionate about, you'll just end up being unoriginal 
 
 -----
 
+# Knocking out a feminazi with romance
+
+Don't want to look like a gay fag practicing with another dude?\
+Footwork for salsa and swing <=> Footwork for taekwondo and boxing\
+Smooth talking your way as a cashier at the local grocery store\
+Buying roses to knockout the feminazis\
+Get Emma Watson'ed you dirty communists, you're in the wrong country
+
+-----
 Poetry © 2023 by Eric Ung is licensed under Attribution-NonCommercial 4.0 International. To view a copy of this license, visit http://creativecommons.org/licenses/by-nc/4.0/
 
