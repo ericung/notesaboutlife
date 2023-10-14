@@ -135,5 +135,18 @@ And as light sways away towards lies again,\
 My rage subsides so that I can finally rest by your side.
 
 -----
+
+# Flowers
+
+There towers the most magnificent flower.\
+Stacked one by one up to the sky.\
+It's green on the ground and blue up high.\
+Brown when it rots and replaced when it's used\
+Or brown for the earth whom gives and grows.\
+There's one for one, two for two\
+and this one is just for you.
+
+-----
+
 Poetry © 2023 by Eric Ung is licensed under Attribution-NonCommercial 4.0 International. To view a copy of this license, visit http://creativecommons.org/licenses/by-nc/4.0/
 
