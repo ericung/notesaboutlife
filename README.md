@@ -125,5 +125,15 @@ Buying roses to knockout the feminazis\
 Get Emma Watson'ed you thirty communists, you're in the wrong country
 
 -----
+
+# Triple X
+
+Triple X is for the sex that makes the world move.\
+Boys go to war and the ones that come out turn into men.\
+The games we play as children navigate ageless lives.\
+And as light sways away from lies again,\
+My rage subsides and I can finally rest by your side.
+
+-----
 Poetry © 2023 by Eric Ung is licensed under Attribution-NonCommercial 4.0 International. To view a copy of this license, visit http://creativecommons.org/licenses/by-nc/4.0/
 
