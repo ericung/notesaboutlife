@@ -130,7 +130,7 @@ Get Emma Watson'ed you thirty communists, you're in the wrong country
 
 Triple X is for the sex that makes the world move.\
 Boys go to war and the ones that come out turn into men.\
-The games we play as children navigate ageless lives\
+The games we play as children lead ageless lives\
 And as light sways away towards lies again,\
 My rage subsides so that I can finally rest by your side.
 
