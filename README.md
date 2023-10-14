@@ -88,7 +88,7 @@ What happens if you make a fool out of a king?
 
 # All about women
 
-1. Girls take after their dads
+1. Girls take after their dads through their jeans and their genes
 
 Some guys trash girls, some make them more beautiful, others in between
 
