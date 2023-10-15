@@ -139,10 +139,10 @@ My rage subsides so that I can finally rest by your side.
 # Flowers
 
 There towers the most magnificent flower.\
-Stacked one by one up to the sky.\
+Stacked one by one towards the sky.\
 It's green on the ground and blue up high.\
-Brown when it rots and replaced when it's used\
-Or brown mother earth whom gives and grows.\
+Brown when it rots, replaced when it's old\
+Or brown mother earth gives and grows.\
 There's one for one, two for two\
 and this one is just for you.
 
