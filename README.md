@@ -142,7 +142,7 @@ There towers the most magnificent flower.\
 Stacked one by one towards the sky.\
 It's green on the ground and blue up high.\
 Brown when it rots, replaced when it's old\
-Or brown mothers earth gives and grows.\
+Or brown mothers earth, gives and grows.\
 There's one for one, two for two\
 and this one is just for you.
 
