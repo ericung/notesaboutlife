@@ -156,6 +156,10 @@ There exists a girl that is equal to you and not equal to you.\
 Equal to you in age,\
 Not equal to you in mind for females mature earlier.
 
+Do not worry if you see no girls in sight\
+for if you are bold in pursuing your dreams,\
+a queen will deem you worthy of a wife.
+
 -----
 
 Rule 69\
