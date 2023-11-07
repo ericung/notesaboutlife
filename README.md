@@ -156,10 +156,6 @@ There exists a girl that is equal to you and not equal to you.\
 Equal to you in age,\
 Not equal to you in mind for females mature earlier.
 
-Do not worry if you see no girls in sight\
-for if you are bold in pursuing your dreams,\
-a queen will deem you worthy of a wife.
-
 -----
 
 Rule 69\
@@ -178,6 +174,12 @@ It follows that girls must work on their bodies to fill the first four holes.\
 Then they must work on their upper holes to have a long lasting relationship.
 
 69 comes before 88
+
+-----
+
+Do not worry if you see no girls in sight\
+for if you are bold in pursuing your dreams,\
+a queen will deem you worthy of a wife.
 
 -----
 
