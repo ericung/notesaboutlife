@@ -179,7 +179,7 @@ Then they must work on their upper holes to have a long lasting relationship.
 
 Do not worry if you see no girls in sight\
 for if you are bold in pursuing your dreams,\
-a queen will deem you worthy of a wife.
+a queen will deem you worthy of a wife fitting of you.
 
 -----
 
