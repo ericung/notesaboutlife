@@ -134,6 +134,8 @@ The games we play as children lead ageless lives\
 And as light sways away towards lies again,\
 My rage subsides so that I can finally rest by your side.
 
+*It's called the boy's club for a reason*
+
 -----
 
 # Flowers
@@ -180,6 +182,8 @@ Then they must work on their upper holes to have a long lasting relationship.
 Do not worry if you see no girls in sight\
 for if you are bold in pursuing your dreams,\
 a queen will deem you worthy of a wife fitting of you.
+
+*It gives people watching over you time to find the right type of girl*
 
 -----
 
