@@ -134,7 +134,8 @@ The games we play as children lead ageless lives\
 And as light sways away towards lies again,\
 My rage subsides so that I can finally rest by your side.
 
-*It's called the boy's club for a reason*
+*It's called the boy's club for a reason*\
+*You can still be a little boy when you're 50*
 
 -----
 
