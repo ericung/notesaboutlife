@@ -80,6 +80,11 @@ Sleeping more than usual
 
 Sorry it took so long to come back home babe
 
+Find a craft\
+Writing, Listening and making art\
+Networking, Interviewing, and Acting\
+Pursuit and extension of human knowledge and ideas
+
 What happens if you make a fool out of a king?
 
 :thumbsdown:
