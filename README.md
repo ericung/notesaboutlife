@@ -162,10 +162,12 @@ and this one is just for you.
 There exists a girl that is equal to you and not equal to you.\
 Equal to you in that she is your type,\
 Not equal to you in that she is younger than you.
+*Harder path.*
 
 There exists a girl that is equal to you and not equal to you.\
 Equal to you in age,\
 Not equal to you in mind for females mature earlier.
+*The probability of getting dumped increases, just a warning.*
 
 -----
 
