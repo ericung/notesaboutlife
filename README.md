@@ -100,7 +100,7 @@ What happens if you make a fool out of a king?
 
 Some guys trash girls, some make them more beautiful, others in between
 
-Some guys need girls the same age, others don’t
+Some guys need girls the same age, others don’t, knight's blood is forever.
 
 Guys embody three things {Body, Mind, Spirit} and the girls follow that unless the roles are reversed\
 Body => Beauty\
