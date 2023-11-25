@@ -85,6 +85,9 @@ Writing, Listening and making art\
 Networking, Interviewing, and Acting\
 Pursuit and extension of human knowledge and ideas
 
+Eating a lot of fat for a little while helps.\
+Exercising too.
+
 What happens if you make a fool out of a king?
 
 :thumbsdown:
