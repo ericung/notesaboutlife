@@ -202,5 +202,8 @@ a queen will deem you worthy of a wife fitting of you.
 
 -----
 
-Poetry © 2023 by Eric Ung is licensed under Attribution-NonCommercial 4.0 International. To view a copy of this license, visit http://creativecommons.org/licenses/by-nc/4.0/
+Catching terrorists.
 
+There's no such thing as second chances in war.
+
+-----
