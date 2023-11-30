@@ -207,3 +207,17 @@ Catching terrorists.
 There's no such thing as second chances in war.
 
 -----
+
+Communism is good at the start but when one person doesn't meet the standard of one,\
+someone else starts to stop working to meet the standard of one.\
+so more people start taking the easy way without thinking of the consequences.\
+Then a few people have to overwork themselves which is impossible\
+until they become unique and respected\
+which younger generations adore.\
+What happens when you take the easy way in communism?\
+You get replaced by the younger generation.\
+Everyone is an animal in communism and generalizations of equality.\
+Taking a load off Xi.\
+Welcome to America.
+
+-----
